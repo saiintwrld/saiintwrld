@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @saiintwrld
 - 👀 I’m interested in ...sugar mommas and kinky sexfriends.
-- 🌱 I’m currently learning ...everything needed to be hacker.
+- 🌱 I’m currently learning ...everything needed to be a hacker.
 - 💞️ I’m looking to collaborate on ...secrets
 - 📫 How to reach me ... stsaiint@gmail.com
 
